@@ -1,5 +1,6 @@
-# The next pizza night is: Friday, MONTH, DAY, any time after 6 pm ET.
-I've got enough dough for 6-medium pizzas. 
+# The next pizza night is:
+**Friday, MONTH, DAY, any time after 6 pm ET.**
+I've got enough dough for 6-medium pizzas. Once I'm out - I'm out. 
 
 ![Picture of a hog eating pizza](https://pbs.twimg.com/media/ELHY0loWsAETBnb.jpg:large)
 
@@ -17,3 +18,4 @@ That's fine. Just let me know ahead of time if you don't mind in case we need to
 
 ## Want to play video games while you're here?
 Let me know what suits your fancy and I'll hook it up: [List of Games]([https://lookerstudio.google.com/reporting/94b02eff-9149-449e-9dee-b54ea2af3a3c](https://lookerstudio.google.com/reporting/94b02eff-9149-449e-9dee-b54ea2af3a3c)).
+
