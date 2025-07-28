@@ -16,4 +16,4 @@ Bring your own. I'm just making pizza's. There's a garden hose outside for water
 That's fine. Just let me know ahead of time if you don't mind in case we need to hide non-kid-friendly shit.
 
 ## Want to play video games while you're here?
-Let me know what suits your fancy and I'll hook it up: [List of Games](https://lookerstudio.google.com/reporting/94b02eff-9149-449e-9dee-b54ea2af3a3c).
+Let me know what suits your fancy and I'll hook it up: [List of Games]([https://lookerstudio.google.com/reporting/94b02eff-9149-449e-9dee-b54ea2af3a3c](https://lookerstudio.google.com/reporting/94b02eff-9149-449e-9dee-b54ea2af3a3c)).
