@@ -1,32 +1,11 @@
 
 ![Picture of a hog eating pizza](https://pbs.twimg.com/media/ELHY0loWsAETBnb.jpg:large)
 
+##The next Pizza night is:
+Friday, MONTH, DAY, any time after 6 pm ET.
 
+##Bringing Kids?
+That's fine. Just let me know ahead of time if you don't mind in case we need to hide non-kid-friendly shit.
 
-
-# Example headings
-
-Hiiiiiii Steve
-
-## Sample Section
-
-## This'll be a _Helpful_ Section About the Greek Letter Θ!
-A heading containing characters not allowed in fragments, UTF-8 characters, two consecutive spaces between the first and second words, and formatting.
-
-## This heading is not unique in the file
-
-TEXT 1
-
-## This heading is not unique in the file
-
-TEXT 2
-
-# Links to the example headings above
-
-Link to the sample section: [Link Text](#sample-section).
-
-Link to the helpful section: [Link Text](#thisll-be-a-helpful-section-about-the-greek-letter-Θ).
-
-Link to the first non-unique section: [Link Text](#this-heading-is-not-unique-in-the-file).
-
-Link to the second non-unique section: [Link Text](#this-heading-is-not-unique-in-the-file-1).
+##Want to play video games while you're here?
+Let me know what suits your fancy and I'll hook it up: [List of Games](https://lookerstudio.google.com/reporting/94b02eff-9149-449e-9dee-b54ea2af3a3c).
