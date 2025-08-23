@@ -1,5 +1,5 @@
 # The next pizza night is:
-**Friday, August, th, any time after 5 pm ET.**
+**Friday, August, 29th, any time after 5 pm ET.**
 
 I've got enough dough for six medium pizzas. Once I'm out - I'm out. 
 
@@ -20,7 +20,4 @@ Bring your own. I'm just making pizza's. There's a garden hose outside for water
 
 ## Bringing Kids?
 That's fine. Just let me know ahead of time if you don't mind in case we need to hide non-kid-friendly shit.
-
-## Want to play video games while you're here?
-Let me know what suits your fancy and I'll hook it up: [List of Games](https://lookerstudio.google.com/reporting/94b02eff-9149-449e-9dee-b54ea2af3a3c).
 
