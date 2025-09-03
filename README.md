@@ -4,7 +4,7 @@
 I've got enough dough for six medium pizzas. Once I'm out - I'm out. 
 
 
-![Picture of a hog eating pizza](MikeAli/PuckHogPizza.github.io/blob/ef027d45c3c263f0c0b8d096521ea444f57f99f7/Your%20parraph%20text%20(1).png)
+![Picture of a hog eating pizza](/Your%20parraph%20text%20(1).png)
 
 ## Address?
 Text me and I'll send it to you.
