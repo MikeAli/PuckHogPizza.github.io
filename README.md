@@ -1,5 +1,5 @@
 # The next pizza night is:
-**Friday, August, 29th, any time after 5 pm ET.**
+**Friday, September, 26th, any time after 5🕠 pm ET.**
 
 I've got enough dough for six medium pizzas. Once I'm out - I'm out. 
 
