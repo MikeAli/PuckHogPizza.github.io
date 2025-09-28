@@ -1,7 +1,7 @@
 # The next pizza night is:
-**Friday, September, 26th, any time after 5:30 pm ET.**
+**Friday, October, 31st, any time after 5:30 pm ET.**
 
-I've got enough dough for six medium pizzas. Once I'm out - I'm out. Read the details below
+I've got enough dough for six medium pizzas. Partners/significant others welcome. Once I'm out - I'm out. Read the details below
 
 
 ![Picture of a hog eating pizza](/Your%20parraph%20text%20(1).png)
@@ -19,4 +19,4 @@ Let me know ahead of time in case we need to hide non-kid-friendly shit. Just re
 If you have something special you want to do bring it or request it ahead of time. Otherwise I'll try to have a few beyond just cheese. 
 
 ## RSVP?
-Up to you. Just don't surprise me at like 1 am unless you bring whiskey.
+Up to you. Just don't surprise me at 1 am unless you bring whiskey.
