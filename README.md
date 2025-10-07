@@ -1,5 +1,5 @@
 # The next pizza night is:
-**Friday, October, 31st, any time after 5:30 pm ET.**
+**Friday, October, 24st, any time after 5:30 pm ET.**
 
 I've got enough dough for six medium pizzas. Partners/significant others welcome. Once I'm out - I'm out. Read the details below
 
