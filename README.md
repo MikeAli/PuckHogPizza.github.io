@@ -1,5 +1,5 @@
 # The next pizza night is:
-**Friday, December 12th, any time after 6:00 pm ET.**
+**Friday, December 12th, any time after 6:30 pm ET.**
 
 I've got enough dough for six medium pizzas. Partners/significant others welcome. Once I'm out - I'm out. Read the details below
 
