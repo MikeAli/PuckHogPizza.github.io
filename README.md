@@ -1,5 +1,5 @@
 # The next pizza night is:
-**Friday, October, 24st, any time after 5:30 pm ET.**
+**Friday, December 12th, any time after 5:30 pm ET.**
 
 I've got enough dough for six medium pizzas. Partners/significant others welcome. Once I'm out - I'm out. Read the details below
 
@@ -13,7 +13,7 @@ Text me and I'll send it to you.
 Bring your own. I'm just making pizza's. There's a garden hose outside for water. I also have some liquor and beer/seltzers.
 
 ## Bringing Kids?
-Let me know ahead of time in case we need to hide non-kid-friendly shit. Just remember that you are in charge of watching your kids - I'm gonna be busy doing pizza stuff.
+I would advise against it since I'm baking most of the time and we can't keep eyes on people's kids. If it's like toddlers/babies or grown kids that's fine. 
 
 ## Toppings?
 If you have something special you want to do bring it or request it ahead of time. Otherwise I'll try to have a few beyond just cheese. 
