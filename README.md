@@ -13,7 +13,7 @@ Text me and I'll send it to you.
 Bring your own. I'm just making pizza's. There's a garden hose outside for water. I also have some liquor and beer/seltzers.
 
 ## Bringing Kids?
-Make sure to keep en eye on them if they're a runner. Otherwise just let me know in advance so we can accomodate.
+Make sure to keep an eye on them if they're a runner. Otherwise just let me know in advance so we can accomodate.
 
 ## Toppings?
 If you have something special you want to do bring it or request it ahead of time. Otherwise I'll try to have a few beyond just cheese. 
