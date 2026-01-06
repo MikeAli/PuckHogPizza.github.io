@@ -1,7 +1,7 @@
 # The next pizza night is:
-**Friday, December 12th, any time after 6:30 pm ET.**
+**Friday, January 30th, any time after 6:30 pm ET.**
 
-I've got enough dough for six medium pizzas. Partners/significant others welcome. Once I'm out - I'm out. Read the details below
+I've got enough dough for six medium pizzas. Partners/significant others welcome. If you're planning to bring a child please let me know in advance. Once I'm out of pizzza - I'm out. Read the details below
 
 
 ![Picture of a hog eating pizza](/Your%20parraph%20text%20(1).png)
@@ -13,7 +13,7 @@ Text me and I'll send it to you.
 Bring your own. I'm just making pizza's. There's a garden hose outside for water. I also have some liquor and beer/seltzers.
 
 ## Bringing Kids?
-I would advise against it since I'm baking most of the time and we can't keep eyes on people's kids. If it's like toddlers/babies or grown kids that's fine. 
+Make sure to keep en eye on them if they're a runner. Otherwise just let me know in advance so we can accomodate.
 
 ## Toppings?
 If you have something special you want to do bring it or request it ahead of time. Otherwise I'll try to have a few beyond just cheese. 
