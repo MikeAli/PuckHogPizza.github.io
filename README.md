@@ -1,5 +1,6 @@
 # The next pizza night is:
 **Friday, February 6th, any time after 6:30 pm ET.**
+*Due to construction traffic on 401 - I'd recommend leaving around 7ish to arrive around 7:30 - 8. Or you can take US 1 to burlington mills rd to cut around it. 
 
 I've got enough dough for six medium pizzas. Partners/significant others welcome. If you're planning to bring a child please let me know in advance. Once I'm out of pizzza - I'm out. Read the details below
 
