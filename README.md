@@ -1,5 +1,5 @@
 # The next pizza night is:
-**Friday, January 30th, any time after 6:30 pm ET.**
+**Friday, February 6th, any time after 6:30 pm ET.**
 
 I've got enough dough for six medium pizzas. Partners/significant others welcome. If you're planning to bring a child please let me know in advance. Once I'm out of pizzza - I'm out. Read the details below
 
@@ -7,7 +7,7 @@ I've got enough dough for six medium pizzas. Partners/significant others welcome
 ![Picture of a hog eating pizza](/Your%20parraph%20text%20(1).png)
 
 ## Address?
-Text me and I'll send it to you.
+804 Oak Rose Ln Rolesville, NC. If you're coming from Apex you can either take 1 -> 440 -> 401 or 540 -> 401 (540 requires toll). 
 
 ## Sides and drinks? 
 Bring your own. I'm just making pizza's. There's a garden hose outside for water. I also have some liquor and beer/seltzers.
