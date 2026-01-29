@@ -2,7 +2,7 @@
 **Friday, February 6th, any time after 6:30 pm ET.**
 *Due to construction traffic on 401 - I'd recommend leaving around 7ish to arrive around 7:30 - 8. Or you can take US 1 to burlington mills rd to cut around it. 
 
-NEW: Want to stay up to date on upcoming pizza nights? ![fill out the form here!](https://docs.google.com/forms/d/e/1FAIpQLScST2kkKw6aIVMuLJ_V0bK9H90cjBb-6dH0jMH1SbCfNkh2OQ/viewform?usp=header)
+NEW: Want to stay up to date on upcoming pizza nights? [fill out the form here!](https://docs.google.com/forms/d/e/1FAIpQLScST2kkKw6aIVMuLJ_V0bK9H90cjBb-6dH0jMH1SbCfNkh2OQ/viewform?usp=header)
 
 I've got enough dough for six medium pizzas. Partners/significant others welcome. If you're planning to bring a child please let me know in advance. Once I'm out of pizzza - I'm out. Read the details below
 
